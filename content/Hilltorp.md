@@ -14,7 +14,6 @@ leader:
 leadingF: 
 leadingR:
 ---
-info alreday written([[Forest of Eldoria quests]]) so check there to
 
 
 # `=this.name`

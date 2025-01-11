@@ -6,16 +6,16 @@
 
 # Planes of existance
 
-## Waylon 
+## [[Waylon ]]
 
-### Astoria
+### [[Wiki/Planes of existance/Waylon/Continents/Astoria|Astoria]]
 
-#### Aglar 
+#### [[Wiki/Planes of existance/Waylon/Continents/Astoria/Countries/Aglar|Aglar]] 
 
-#### Bevaria
+#### [[Wiki/Planes of existance/Waylon/Continents/Astoria/Countries/Bevaria|Bevaria]]
 
-#### Eldoria 
+#### [[Wiki/Planes of existance/Waylon/Continents/Astoria/Countries/Eldoria|Eldoria]] 
 
-#### Quelton
+#### [[Wiki/Planes of existance/Waylon/Continents/Astoria/Countries/Qwelton|Qwelton]]
 
 ### Oram

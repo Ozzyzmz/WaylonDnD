@@ -42,3 +42,7 @@
 [[Tenali]]- the jester 
 
 [[Vermitas]] - Protector of creatures
+
+# Evil Gods
+
+[[Armarok]] 

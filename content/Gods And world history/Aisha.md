@@ -1,0 +1,1 @@
+as people started to pray it was usually for such things as food and water for their crops but one day suddenly people started praying for love and lust and such things was not ok for Lumina to think about. so she took the feeling of lust and love and a some help from Farius with one of his souls, and then the lover was born.
